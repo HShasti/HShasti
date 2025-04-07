@@ -37,7 +37,7 @@ Let's connect!
 
 ---  
 
-⭐️ From [Your Name](https://github.com/hshasti)  
+⭐️ From [Hassan Shasti](https://github.com/hshasti)  
 
 ---  
 
